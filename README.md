@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @cooldudes24
+- 👀 I’m interested in programming, which is why I have this account.
+- 📫 How to reach me: cooldudes24.prog@gmail.com
